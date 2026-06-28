@@ -1,1 +1,1 @@
-Hello, New!
+No code No pain
